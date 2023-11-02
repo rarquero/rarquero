@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rarquero
-- 👀 I’m interested in developing my skills in my career field through internships or entry-level positions.
+- 👀 I’m interested in developing my skills through self-study.
 - 🌱 I’m currently a student at the University of the Pacific.
 - 💞️ I’m looking to collaborate on team projects and expanding my knowledge.
 - 📫 How to reach me ... email: rquicho94@gmail.com / mobile: (408)368-4206
